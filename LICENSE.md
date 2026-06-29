@@ -1,4 +1,4 @@
-#  
+#  automatic be a lucky block Script is the best be a lucky block Script, featuring auto-upgrade and anti-ban. Safe and powerful for all your needs.
 
 
 
